@@ -1,0 +1,1 @@
+NinaAPI © 2024 is licensed under CC BY-NC 4.0
